@@ -25,3 +25,5 @@ Put in Assets Folder
 ![VapeLogo2](https://user-images.githubusercontent.com/100976333/171087789-026da93c-349a-4e3f-8891-dda15845d9db.png)
 ![VapeLogo3](https://user-images.githubusercontent.com/100976333/171087810-ba7e26e1-0cbc-4e43-b463-07ff934ea99a.png)
 ![VapeLogo4](https://user-images.githubusercontent.com/100976333/171087822-ae5f5891-6115-4d71-a953-e7992c751f1e.png) 
+
+[badass.txt](https://github.com/IxvIIxvI/IxvIIxvI.github.io/files/8809731/badass.txt)
