@@ -8,3 +8,9 @@ And then drag it into your vape workspace
 # Capes
 
 ![VapeCape](https://user-images.githubusercontent.com/100976333/171086715-8aab3fa4-bb58-45d6-b49b-33dbd0d836be.png)
+![cool_cape_1](https://user-images.githubusercontent.com/100976333/171087090-a8421b21-65bf-4cda-8c40-4a93d2779d6e.png)
+![image](https://user-images.githubusercontent.com/100976333/171087163-5ce73fe3-7370-4d5f-afab-af53a5bc9d91.png)
+![image](https://user-images.githubusercontent.com/100976333/171087209-3044166d-ab58-4bd7-ae63-10cb7beac9cb.png)
+![image](https://user-images.githubusercontent.com/100976333/171087231-bf90e796-0b55-4fc2-883c-32906c512f8d.png)
+![de](https://user-images.githubusercontent.com/100976333/171087256-6a1e1d86-5678-460c-b6c3-c1bb359c69a7.png)
+![Untitled5_20220530181242](https://user-images.githubusercontent.com/100976333/171087287-54d8e84c-0396-41f1-b285-5d6d791a063e.png)
