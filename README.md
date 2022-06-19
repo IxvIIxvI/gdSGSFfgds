@@ -1,4 +1,4 @@
-#INFO#
+# Info
 
 ````
 I Post Vape Capes And Stuff Here
